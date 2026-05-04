@@ -1,4 +1,4 @@
-# Hi, I'm Quynh Vo
+# Hi, I'm Quynh (Quinn) Vo
 
 _Business Analyst — turning customer data into clearer decisions._
 
